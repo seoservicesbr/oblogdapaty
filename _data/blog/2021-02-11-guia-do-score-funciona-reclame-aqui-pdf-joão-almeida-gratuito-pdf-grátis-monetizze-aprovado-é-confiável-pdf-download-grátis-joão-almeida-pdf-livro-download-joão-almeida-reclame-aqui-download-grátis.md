@@ -27,8 +27,6 @@ Essa pontuação é medida pelo Serasa e pode ser conferida no site Serasa Consu
 
 ## O QUE É GUIA DO SCORE? GUIA DO SCORE JOÃO ALMEIDA
 
-
-
 O Guia do Score é um livro digital que conta com um passo a passo detalhado sobre como você pode melhorar a sua reputação e ampliar o seu score no Serasa para voltar a ter crédito e mais facilidade na hora de abrir qualquer tipo de conta. Ele foi desenvolvido pelos melhores especialistas em análise de crédito e conta com 4 passos que você deve seguir e aplicar para conseguir aumentar em até 750 pontos o seu score, de 7 a 14 dias.
 
 Algumas pessoas podem conseguir mais ou menos pontos nesse mesmo período, pois vai depender de cada um e do seu histórico como bom pagador. Entretanto, se colocar em prática os 4 passos que são exemplificados no e-book, você terá grandes chances de melhorar o seu score e conseguir crédito na praça novamente.
@@ -66,8 +64,6 @@ Se você quer saber se o Guia do Score é confiável, recomendamos primeiro que 
 Com isso, se você não gostar do produto ou ele não cumprir com o que promete, você receberá todo o seu dinheiro de volta sem nenhum problema.
 
 [![Guia do Score O Que Estão Dizendo](https://vanessadermatologia.pro/wp-content/uploads/2021/01/vanessadermatologia.pro-guia-do-score-o-que-estao-dizendo.png "Guia do Score O Que Estão Dizendo")](https://app.monetizze.com.br/r/AFT8415818?src=lojaintegrada "Guia do Score O Que Estão Dizendo")
-
-
 
 ### **[\==> CLIQUE AQUI PARA PEGAR SUA CÓPIA DO GUIA DO SCORE <==](https://app.monetizze.com.br/r/AGE11969405?src=netlifyobp "==> CLIQUE AQUI PARA PEGAR SUA CÓPIA DO GUIA DO SCORE \<==")**
 
