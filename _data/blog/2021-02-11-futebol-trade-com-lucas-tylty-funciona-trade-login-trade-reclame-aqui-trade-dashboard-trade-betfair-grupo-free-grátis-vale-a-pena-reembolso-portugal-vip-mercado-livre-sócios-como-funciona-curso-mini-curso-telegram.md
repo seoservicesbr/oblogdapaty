@@ -30,8 +30,6 @@ Para aplicar o método, você precisará entender como ele funciona e conhecer t
 
 ## O QUE É FUTEBOL TRADE?
 
-
-
 O **método Futebol Trade foi desenvolvido por Lucas Tylty** que antes trabalhava lavando pratos e o chão. Atualmente, ele é considerado um Trade Esportivo e conta com alunos em mais de 55 países, além de ser reconhecido em toda a comunidade esportiva por ter um dos grupos mais rentáveis do mercado.
 
 Nesse método, ele te ensina a como ter os mesmos resultados que Lucas e *conseguir viver do futebol do conforto de sua casa*. Ele desenvolveu uma plataforma de estatística e probabilidade que é uma das principais do mundo, além de ser exclusiva para os alunos VIP do curso; se chama TyltyScore.
@@ -55,8 +53,6 @@ Entender como o método funciona de verdade é algo que você só poderá descob
 O método conta com a estratégia mais lucrativa do mercado, chamada de Cashout. Ela é exclusiva do grupo VIP e permite que os participantes tenham excelentes lucros mesmo antes dos jogos terem início, com quase nenhum risco de prejuízos. Você aposta um determinado valor e pode ter um retorno de R$1 mil a mais. Na página de vendas, você consegue ver que um participante que apostou R$1.000, teve retorno de R$1.925,00. Esse é apenas um exemplo do que você pode ganhar por cada jogo dentro da plataforma.
 
 Dentro do aplicativo de estatística TyltyScore, você consegue ver as probabilidades das apostas, conferir os gols das partidas e muito mais. Ele é indispensável para quem deseja aplicar o método.
-
-
 
 ## PARA QUEM É FUTEBOL TRADE
 
