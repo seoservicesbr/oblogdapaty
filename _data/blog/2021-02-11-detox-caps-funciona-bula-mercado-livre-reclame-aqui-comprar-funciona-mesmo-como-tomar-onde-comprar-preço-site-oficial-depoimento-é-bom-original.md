@@ -30,8 +30,6 @@ Hoje lhe apresentaremos Detox Caps, um suplemento que possui todas as caracterí
 
 ## O QUE É DETOX CAPS?
 
-
-
 **Detox Caps o que é**? *Detox Caps é um suplemento alimentar responsável* por proporcionar um incrível efeito emagrecedor no corpo que pode te ajudar a eliminar cerca de 3 quilos por semana. Ele foi desenvolvido em laboratório e o seu efeito é clinicamente testado, sendo assim, todos os resultados e benefícios possuem estudos e a aprovação da ANVISA.
 
 Diferente do que muitos pensam, Detox Caps não é um remédio, mas sim um suplemento aprovado pela ANVISA. Detox Caps resultados começam a surgir após o primeiro mês de tratamento, segundo o fabricante. Você poderá notar mudanças significativas na sua aparência e também vai estar se sentindo mais saudável.
@@ -253,8 +251,6 @@ Com o **suplemento Detox Caps** você pode melhorar a sua vida e a sua saúde, t
 ### **[\==> CLIQUE AQUI PARA GANHAR SUPER DESCONTO EXCLUSIVO <==](https://app.monetizze.com.br/r/AGP8364840?src=netlifyobp "==> CLIQUE AQUI PARA GANHAR SUPER DESCONTO EXCLUSIVO \<==")**
 
 ### **[\==> CLIQUE AQUI PARA GANHAR SUPER DESCONTO EXCLUSIVO <==](https://app.monetizze.com.br/r/AGP8364840?src=netlifyobp "==> CLIQUE AQUI PARA GANHAR SUPER DESCONTO EXCLUSIVO \<==")**
-
-
 
 Link da página: [https://oblogdapaty.netlify.app/detox-caps-funciona-bula-mercado-livre-reclame-aqui-anvisa-composicao-como-usar-onde-comprar-para-que-serve-e-bom-site-oficial/](https://oblogdapaty.netlify.app/detox-caps-funciona-bula-mercado-livre-reclame-aqui-anvisa-composicao-como-usar-onde-comprar-para-que-serve-e-bom-site-oficial/ "https\://oblogdapaty.netlify.app/detox-caps-funciona-bula-mercado-livre-reclame-aqui-anvisa-composicao-como-usar-onde-comprar-para-que-serve-e-bom-site-oficial/")
 
