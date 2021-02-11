@@ -11,6 +11,7 @@ metaDescription: >-
   Aqui? Fexadrol Comprar? Fexadrol Funciona Mesmo? Fexadrol Como Tomar? Fexadrol
   Onde Comprar? Fexadrol Preço? Fexadrol Site Oficial? Fexadrol Depoimento?
   Fexadrol É Bom? Fexadrol Original?
+thumbnail: /assets/fexadrol.png
 ---
 <!--StartFragment-->
 
