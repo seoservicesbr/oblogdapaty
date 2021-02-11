@@ -25,8 +25,6 @@ Uma dessas pessoas desenvolveu um método que se chama *Net Milionário* e te aj
 
 ## O QUE É NET MILIONÁRIO?
 
-
-
 O Net Milionário é um curso online sobre Marketing Digital desenvolvido pelos 2 maiores especialistas em vendas pela internet. Nesse curso você vai aprender a como dar início ao seu próprio negócio online com um baixo investimento e tendo um alto retorno. Ele é considerado um dos cursos mais completos da área e te ensina a ter resultados reais em pouco tempo.
 
 Nesse curso você vai obter um passo a passo que pode ser aplicado por qualquer um, sem exigir nenhum conhecimento técnico em nenhuma área. Com até 2 horas por dia aplicando o que aprende, você já poderá ter os seus primeiros resultados. Por isso, o curso pode ser feito também por quem já tem jornada de trabalho e estudo.
@@ -73,10 +71,6 @@ Antes de comprar qualquer curso online, as pessoas costumam se questionar se é 
 
 Além disso, na página de vendas do Net Milionário, você consegue ver os depoimentos de alunos das primeiras turmas contando como estão os seus negócios atualmente e os resultados que obtiveram depois de realizar o curso.
 
-
-
-
-
 ### **[\==> CLIQUE AQUI PARA CONHECER O NET MILIONÁRIO COM 90% DE DESCONTO <==](https://app.monetizze.com.br/r/AEB11969399?src=gsites "==> CLIQUE AQUI PARA CONHECER O NET MILIONÁRIO COM 90% DE DESCONTO \<==")**
 
 ### **[\==> CLIQUE AQUI PARA CONHECER O NET MILIONÁRIO COM 90% DE DESCONTO <==](https://app.monetizze.com.br/r/AEB11969399?src=gsites "==> CLIQUE AQUI PARA CONHECER O NET MILIONÁRIO COM 90% DE DESCONTO \<==")**
@@ -91,8 +85,6 @@ O curso possui uma grade bem completa e muito diversa. São muitos conteúdos, p
 
 *No curso Net Milionário você aprenderá a:*
 
-
-
 * Criar anúncios no Facebook;
 * Criar anúncios no Google;
 * Criar anúncios no YouTube;
@@ -106,10 +98,6 @@ O curso possui uma grade bem completa e muito diversa. São muitos conteúdos, p
 * Como vender sem gastar nada;
 * Mini Curso de Edição de Vídeos;
 * E muito mais.
-
-
-
-
 
 [![Net Milionário É Farsa](https://vanessadermatologia.pro/wp-content/uploads/2021/01/vanessadermatologia.pro-net-milionario-e-farsa.png "Net Milionário é Farsa")](https://app.monetizze.com.br/r/AEB11969399?src=gsites)[![Net Milionário Reclame Aqui](https://vanessadermatologia.pro/wp-content/uploads/2021/01/vanessadermatologia.pro-net-milionario-reclame-aqui.png "Net Milionário Reclame Aqui")](https://app.monetizze.com.br/r/AEB11969399?src=gsites)
 
