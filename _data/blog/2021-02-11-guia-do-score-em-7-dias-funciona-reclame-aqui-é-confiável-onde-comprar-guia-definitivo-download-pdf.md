@@ -25,8 +25,6 @@ Por esses motivos, é importante tentar manter o seu score em um parâmetro semp
 
 ## O QUE É SCORE EM 7 DIAS?
 
-
-
 O *Score em 7 Dias é um guia definitivo* que conta com um passo a passo bem detalhado para que você consiga aumentar a sua pontuação em apenas 7 dias para poder voltar a ter acesso aos serviços financeiros que sempre teve. Todo esse passo a passo foi elaborado por um dos melhores especialistas em análise de crédito dos grandes bancos brasileiros.
 
 Portanto, se trata de um livro digital com diversas informações e ensinamentos para que você possa aumentar a sua pontuação, mantê-la sempre no mesmo patamar e nunca mais ter problemas com o seu score. Aumentando a sua pontuação, você vai conseguir o crédito que deseja nos bancos ou nas lojas e nunca mais ficará na mão.
